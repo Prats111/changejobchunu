@@ -1,3 +1,3 @@
 # changejobchunu
 learn to change my job
-Pratikshya Mishra
+Pratikshya Mishra (Apna College)
